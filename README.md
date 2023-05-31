@@ -1,2 +1,0 @@
-# Web_dasturlashga_kirish_mustaqil_ish
-941_21-guruh Razzaqberdiyeva Sarvinoz
